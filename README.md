@@ -1,5 +1,5 @@
 Hi- 👋 Hi, I’m @EltzBot
-kamu suka siapa- 👀 I’m interested in .tember..
+kamu suka siapa- 👀 I’m interested in ...
 kamu ngapain- 🌱 I’m currently learning ..hihi.
 kamu ingin berkolaborasi- 💞️ I’m looking to collaborate on tember club...
 bagaimana mendapatkan kamu- 📫 How to reach me ...kasih pap skibidi
